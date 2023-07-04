@@ -1,2 +1,1 @@
 Ryu Yano
-44
